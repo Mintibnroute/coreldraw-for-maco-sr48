@@ -1,4 +1,4 @@
-# 
+# updated Script for CorelDRAW for macOS - smart objects and 3D rendering offers the most advanced CorelDRAW for macOS script, with smart objects and 3D rendering. Ideal for
 
 
 
